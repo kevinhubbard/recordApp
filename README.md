@@ -1,1 +1,1 @@
-keep goin bro.
+keep goin bro, but you a bumblin idiot.
